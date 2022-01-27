@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @noby2000
+- 👀 I’m interested in crypto
+- 💞️ I’m looking to collaborate 
+- 📫 How to reach me: telegram: @noby2000
